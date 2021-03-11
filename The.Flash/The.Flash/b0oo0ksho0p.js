@@ -1,262 +1,22 @@
 /*
-英语演讲：改变一下，仰望星空
-文章来源：未知 文章作者：enread 发布时间：2020-05-11 07:03 字体： [大 中 小]　 进入论坛
-(单词翻译:双击或拖选)
-The sky is inherently democratic.
-夜空，是人类与生俱来的共享资源。
-It's accessible, in principle, anyway, by anyone, everywhere, just simply by the act of looking up.
-原则上来说，任何人、在任何地方，都可以欣赏夜空的美，你只需轻轻抬头仰望。
-But like so many beautiful things around us, it's slipping away from us,
-然而，如同我们身边很多其它美丽的事物一样，夜空正在逐渐消逝，
-and we haven't even noticed, because we're honestly not really looking.
-而我们却未曾察觉，因为，我们根本看都没看一眼。
-So what do we look at instead? Well, we look at our phones, we look at our computers, we look at screens of all kinds.
-那我们看的究竟是什么呢？我们在看手机、玩电脑，我们注视着各种各样的电子屏幕。
-And honestly, we rarely even take the trouble to look up enough to see each other,
-说实在的，我们甚至很少费心去抬头注视彼此，
-let alone taking that next step to looking up at the actual sky.
-更不要说走出房门、抬头仰望真正的天空了。
-Now, there's a tendency to think that the loss of our dark night skies is the inevitable1 outcome of progress, change, technology.
-越来越多的人认为，夜空的消逝是科技进步、社会发展的必然结果。
-And you know, that's just simply not true. Later on, I'll tell you why.
-但这并不是真正的原因。接下来，我将告诉你为什么。
-But first, I want to tell you about my experience of the dark night sky.
-首先，我想给你们讲讲我自己有关夜空的经历。
-I never saw a truly dark night sky until I was 15. I was here, in Arizona.
-我直到十五岁时，才见过真正的夜空。当时，我就在亚利桑那州。
-I was on a road trip; I pulled over somewhere. I have no idea where I was, except I know what state.
-那是一次旅途，我们在一个地方靠边停了车。当时除了州名以外，我对身在何处一无所知。
-And I looked up, and the sky was just filled with an impossible number of stars.
-就那么不经意地抬头一望，我看到了布满繁星的夜空！
-You see, I'm from New York City, and in New York, you can see the moon, you can see a couple of stars.
-想想看，我来自纽约，在那个城市，你只能看到月亮和几颗“零星”。
-More often than not, they turn out to be airplanes when they land.
-而且通常当“零星”降落时，你才发现，它们其实是飞机。
-But there's really not much else.
-除此之外，也没什么其它东西了。
-As a result, most of my colleagues who are astronomers2 spent at least part of their youth looking up at the sky in their backyard.
-我的大多数天文学家同事们，至少都有过一段夜晚在自家后院数星星的童年时光。
-I never really had that experience, and, as a result, I'm really disappointing on camping trips.
-而我却从未有过那种经历，所以在露营旅途中，我的表现令人大失所望。
-I don't really know many constellations3.
-关于星座方面的知识极其有限。
-The ones I do know, you probably know them, too.
-而我所知道的为数不多的几个星座，相信在座的各位也都耳熟能详。
-But I'll never forget that experience of the first time I saw the dark night sky.
-但我永远不会忘记平生第一次看到夜空的经历。
-And I was just flabbergasted at how many stars there were. And I felt tiny.
-那漫天的繁星深深震撼了我，让我感到自己无比渺小。
-Then I also felt like, "Where's this been hiding this whole time? Who's been hiding this sky from me?"
-接下来，我就有了这样的疑惑：这些奇景一直以来被藏在了哪里？是谁藏匿了这样的天空？
-Of course, the answer is obvious if you think about it or if you look at the picture on the left,
-不过仔细一想，答案其实显而易见，或者看一下左边的照片就明白了，
-where you're seeing the same neighborhood taken during a blackout versus4 on an ordinary night.
-这是同一街区停电时拍摄的夜空，右边是普通夜晚拍摄的夜空照片。
-You can't see the stars if you drown them out with light.
-当星星被灯光淹没时，你自然就看不到它们。
-Take a look at our planet. This is our planet from space.
-现在请审视一下我们的地球，这是从太空拍摄的地球。
-Unlike stars, which are hot and glow invisible light so we can see them,
-恒星发出热量和不可见光，所以我们能看到它们，
-our planet is, astronomically5 speaking, pretty cold. So it doesn't really glow.
-而地球与恒星不同，从天文学上讲，地球很冷，所以其自身并不发光。
-When you see the planet looking like a blue-green marble the way it does in this picture,
-当你看到图中展现的这颗如蓝绿色大理石般的地球时，
-you're seeing it because the sunlight is reflecting off of it,
-你能看见它是因为它反射了太阳光的缘故。
-and that's why you can see the oceans, the clouds, the land.
-这也是为什么你能看到海洋、云朵和陆地。
-So if the sun wasn't shining on it, we wouldn't be able to see the earth, right? Or would we?
-也就是说，如果没有太阳的照射，我们就看不到地球了，对吗？或者，我们依然能看到它？
-This is our earth at night, and it is one of the most striking examples of how we have affected6 our planet on a global scale.
-这是夜晚的地球，这是人类在全球范围内对地球造成显著影响的例子之一。
-You can see light spidering out across the globe everywhere.
-你可以看到光亮散播到了全球的各个角落，
-Now, of course, there are broad expanses of ocean that are still dark,
-当然，现在广阔的海洋依旧处于黑暗中，
-and in many underdeveloped areas there's still darkness.
-很多不发达的地区看起来也是漆黑一片。
-But you'll notice that this is a pretty global effect.
-但你会发现这其实已经成为了全球现象。
-We tend to think, when we think of places being lit up, of very extreme examples -- Times Square, the Vegas Strip.
-当提到灯火通明的地方时，我们总会想起那些最极端的例子，比如时代广场、拉斯维加斯大道。
-But really what that picture shows you is that it's not just these extreme examples, it's anywhere that uses outdoor lighting7.
-但那张整个地球的照明情况图片显示的不仅仅是这几个极端个例，而是任何使用户外照明的地方。
-This tends to be a really dramatic effect on the ground.
-这往往给地球表面带来真正巨大的影响。
-To understand why, all you really have to do is think about the shape of a lightbulb.
-想知道为什么，你只需想想灯泡的形状。
-The lightbulb, for all practical purposes, is more or less round.
-为了实用的目的，灯泡基本上都是圆的。
-This is great for its original intended purpose of lighting up the indoors.
-这正符合它最初的目的，室内照明。
-You turn it on, light goes everywhere. An individual light bulb can light up your whole room, more or less.
-你打开灯，灯光照射到房间的每个角落。一个灯泡就能照亮整个房间，只是明暗程度的差异。
-Now, that's great if you're lighting the indoors, but in its application in outdoor lighting,
-如果你想照亮室内，这确实非常有效；但当我们用于室外照明时，
-that traditional shape of the light bulb, the sort of globe that spreads light everywhere, is actually very inefficient8.
-传统的灯泡形状，即那种向四周传播光线的球形灯泡，其实是十分低效的。
-When you're outdoors, mostly what you care about is lighting the ground beneath you and your immediate9 surroundings.
-当你身处室外时，你最关心的是照亮你脚下的地面和周围的环境。
-All of that light that gets scattered10 outwards11 and upwards12 doesn't actually help you light the area around you.
-所有那些分散向外或向上的光，都并不能帮你有效地照亮你周围的区域。
-What it does is scatters13 up into the sky and becomes what we call "light pollution."
-它只是将光线散射到天空，造成我们所说的“光污染”。
-Even if you don't care anything about stargazing, this should worry you,
-即使你不在意星象观测，你也应该关心光污染，
-because it means that 60-70% of the energy we use to light the outdoors is wasted by blotting14 out the stars.
-因为，它意味着我们用于室外照明的60-70%的能量被浪费在屏蔽夜晚的星光了。
-Now, like I said, I'm a big fan of technology.
- 
-正如我所说的，我是个大科技迷。
-Obviously, I use technology every day; I'm a scientist.
-作为一个科学家，显然每天我都使用高科技。
-And there's this tendency to say that it's progress that -- you know, I'm not suggesting we're going to all go live by candlelight.
-大家倾向于认为这是进步--我并非建议大家在烛光下生活。
-Indeed, technology is allowing us to access the sky in ways that are impossible otherwise.
-确实，科技使我们能够接近天空。
-One of the greatest examples of this is, of course, the Hubble Space Telescope.
-用一种只有科技能够做到的方式，当然，最伟大的例子就是哈勃太空望远镜。
-The Hubble went up into space, it returns pictures daily,
-哈勃望远镜被发射进入太空，每天都传回大量照片，
-and it allows us to see things that we are incapable15 of seeing with our naked eye,
-让我们看到太空的事物，这些都是我们肉眼所看不到的，
-in ways that we've never been able to do before in all of human history.
-在人类历史的任何阶段，我们都从没这么做过。
-Other examples of this would be planetarium16 shows.
-其它类似的例子当然还有天体展示。
-In the past couple of years, planetarium shows have become more high-tech17 with these great visualizations,
-在过去的几年里，借助这些超棒的可视化信息，天体展示变得越来越高科技化，
-and even though this isn't access directly to the sky, it's at least access to our knowledge about the sky.
-即使这并不是直接亲身接触天空，但至少让我们获得了关于天空的知识。
-And indeed, we can experience the sky in a planetarium in a way that is impossible for us to do just sitting out and looking in the dark.
-的确，我们可以在天文馆体验那种坐在室外、望向漆黑的夜空所体验不到的感觉。
-All of you have heard of the Hubble Space Telescope and of planetariums18.
-你们大概都听说过哈勃太空望远镜和天文馆。
-But there are also ways for technology to enable participation19 in people's experience of the sky that you may not be familiar with.
-但是也有一些技术可以让人们参与到关于天空的、你可能不熟悉的体验中。
-These are called "citizen science projects."
-这就是所谓的“平民科学项目”。
-Citizen science is when large research projects put their data online, teach ordinary people, like you, to go and interact with that data
-平民科学是一个大的项目，他们把数据放到互联网上，教像在座各位这样的普通人去与数据进行交互，
-and actually contribute to the research by making interesting or necessary characterizations about it.
-通过给数据添加有趣或必要的特征，进而对研究做出贡献。
-One such example of this is what I'm showing here, called "Galaxy20 Zoo."
-类似的例子就是我现在展示的“银河动物园”项目。
-Galaxy Zoo is a project where people get a 20-minute -- even less than that, actually
-银河动物园项目是这样的：人们经过20分钟的指导--实际上少于20分钟，
-tutorial on how to interact with these images of galaxies21.
-学习关于如何与这些星系的图像进行交互。
-They learn to annotate22 the images, and within a couple of minutes, they're up and running,
-他们学习为图像做注释，在几分钟内，他们就能着手开始工作，
-and they're making really useful categorizations and classifications of these galaxies.
-而且真正能够对这些星系进行有用的归类和划分。
-Now, it's easy to understand why Galaxy Zoo would be an easy sell for people to be involved with:
-很容易就能理解为何“银河动物园”很容易被参与其中的人所接受：
-it involves pretty pictures; galaxies are, generally speaking, pretty attractive.
-它包含了漂亮的图片；通常来说，星系的确很吸引人。
-However, there are many other flavors of citizen science projects that people have delved23 into that have varying levels of abstraction,
-然而，还有很多其他类型的平民科学项目，人们探究过的这些项目抽象程度各不相同，
-that you wouldn't necessarily think people would jump at.
-你会觉得人们不太会立刻参与这些项目。
-One such example of this is the citizen science project associated with the mission that I'm part of, called the Kepler Mission.
-一个类似的例子就是与我参加的任务相关的一个平民科学项目，叫做“开普勒任务”。
-Kepler is a space telescope and it looks for planets around other stars by measuring the light from those stars very precisely24.
-开普勒是一个太空望远镜，它通过精确测量恒星的光线（变化）来寻找恒星周围的行星。
-And we're looking for the dimmings caused by stars blocking off some of that light.
-我们在寻找恒星因为光线被（围绕其运转的行星）阻挡而发生的微暗现象。
-We have an associated citizen science project called "Planet Hunters."
-我们有一个与此相关的“行星猎手”平民科学项目。
-Planet Hunters gives you, like Galaxy Zoo, a short tutorial, and within a couple of minutes, you're up and running;
-类似于银河动物园，这个项目也会提供给你一个短教程，几分钟之后，你就可以开始工作；
-you're looking at data from the Kepler Mission and looking for planets.
-你需要观察来自开普勒任务的数据，并寻找行星。
-The idea behind this is an easy sell, right?
-背后的想法很容易被接受，对吗？
-But the actual process of planet-hunting involves a lot of looking at graphs,
-但探索行星的实际过程包含对大量图表进行观察分析，
-like the one I'm showing you here, and annotating25 them.
-就像这里我向你们展示的一样，需要去分析和注释它们。
-I do this all day and that doesn't even sound that interesting to me.
-我整天都做这些工作，所以已经不觉得那么有趣了。
-However, not only are people interested in doing this,
-然而，人们不仅对此很感兴趣，
-but the citizen scientists that work with Planet Hunters have actually found planets in the data that would have gone undiscovered otherwise.
-而且参与“行星猎手”项目的平民科学家们在数据中真的发现了行星，多亏了他们，才不至于错失发现这些行星的机会。
-This is an author list from the paper that they published of the planet they discovered.
-这是他们发表的关于所发现行星论文中的作者列表。
-You'll see that all the people who contributed are listed below,
-你会看到，所有对此做出贡献的人们都在以下名单中列出，
-and it's sort of an odd amalgam26 of people's real names and their log-in names.
-名单有点像人们真实姓名和他们登录名的奇怪组合。
-You'll notice if you look carefully, this is the first academic acknowledgment of the importance of Irish coffee in the discovery process.
-如果仔细观察，你会发现这是学术圈第一次认可爱尔兰咖啡在发现行星过程中的重要性。
-I don't want to give you the idea that these are some out-of-work scientists or just a bunch of nerds that are really into this.
-我不想给你这样的错觉，以为这些只是一些失业的科学家或一些书呆子才会痴迷的项目。
-There are 60,000 people who participate in these projects, and most of them don't have technical backgrounds.
-其实，一共有6万人参与了这些项目，其中大部分人都没有技术背景。
-So clearly, what this is feeding into is people's curiosity and their willingness to be part of the scientific discovery process.
-显然，人们参与其中是因为好奇心驱使，还有他们参与科学发现过程的意愿。
-People want to do this. But all of this technology and all these digitally mediated27 ways of experiencing the sky
-人们想去做这样的事情。但是所有这些技术，以及所有这些体验天空的数码媒介方式，
-still have something of a feel to me like looking at an animal in a zoo.
-仍带给我一种像在动物园看动物的感觉。
-It's a valid28 way of experiencing that thing -- indeed, the lion in the cage is still real, the Hubble images are indeed real,
-这是体验天空的有效方式，确实，笼里的狮子依旧是真实的，哈勃图片也确实是真实的，
-and you can get closer to a lion in a zoo than you can in the wild. However, it's missing something.
-而且，你在动物园里比在野外更接近狮子。然而，这里缺少了一些东西。
-It's missing that savage29 beauty of experiencing that very thing in the wild for yourself, unmediated by a screen.
-缺少你在野外亲身体验到的那种野性之美，未曾经过荧屏这层媒介。
-The experience of looking up and knowing that the sky you're looking at surrounds every known living thing in the universe is very profound.
- 
-仰望天空，并认识到你正观看的天空包围着宇宙中所有的已知生物，这种感受意义深远。
-Think about that for a moment. We are the only planet we know of that has life on it.
-试想一下，我们是唯一已知的存在生命的星球。
-The sky that you see is shared by every other living thing that we know of in existence.
-你所看到的天空，是与已知世间万物共享的，
-One of the things that I really like about my work is that
-我真正喜欢自己职业的一点是，
-it allows me to step back from my every day and to experience the larger context,
-它让我抛开日常的生活，去体验更丰富的内涵，
-this feeling that just as we go out and try to find planets in the universe that might be like ours,
-这种感觉就好像我们遨游宇宙去寻找新的行星，可能和地球一样的星球，
-it always reminds me of how precious what we have here is.
-这总是提醒我现在的生活有多么珍贵。
-Our night sky is like a natural resource, it's as though it's a park that you can visit without ever having to travel there.
-我们的夜空就像自然资源，就像一个无须经历旅游劳顿就可以参观的公园。
-But like any natural resource,
-但是，就像其他的自然资源一样，
-if we don't protect it, if we don't preserve it and treasure it, it will slip away from us and be gone.
-如果我们不去保护它、保存它和珍惜它，它将会从我们身边消失。
-So if you're interested in this, and this is something you want to learn more about,
-因此，如果你们对此感兴趣，如果这也是你想多了解的东西，
-I encourage you in particular to visit darksky.org
-我特别鼓励你们去访问网站“darksky.org”，
-and to learn more about the choices you can make that can protect the dark night sky,
-去学习更多关于你能做出的选择，来保护夜空，
-because it belongs to everyone, it belongs to all of us, and therefore, it's ours to experience as we wish.
-因为它属于每个人，属于我们所有人，所以，我们根据自己的愿望去行动。
-And it's also ours to lose. Thank you.
-成败的责任，都在于我们自己。谢谢！
-
-
 口袋书店
 活动入口：京东app首页-京东图书-右侧口袋书店
-
+已支持IOS双京东账号,Node.js支持N个京东账号
+脚本兼容: QuantumultX, Surge, Loon, JSBox, Node.js
 ============Quantumultx===============
 [task_local]
 #口袋书店
-1 8,12,18 * * * https://gitee.com/lxk0301/jd_scripts/raw/master/jd_bookshop.js, tag=口袋书店, img-url=https://raw.githubusercontent.com/Orz-3/task/master/jd.png, enabled=true
+1 8,12,18 * * * https://jdsharedresourcescdn.azureedge.net/jdresource/jd_bookshop.js, tag=口袋书店, img-url=https://raw.githubusercontent.com/Orz-3/mini/master/Color/jd.png, enabled=true
 
 ================Loon==============
 [Script]
-cron "1 8,12,18 * * *" script-path=https://gitee.com/lxk0301/jd_scripts/raw/master/jd_bookshop.js,tag=口袋书店
+cron "1 8,12,18 * * *" script-path=https://jdsharedresourcescdn.azureedge.net/jdresource/jd_bookshop.js,tag=口袋书店
 
 ===============Surge=================
-口袋书店 = type=cron,cronexp="1 8,12,18 * * *",wake-system=1,timeout=3600,script-path=https://gitee.com/lxk0301/jd_scripts/raw/master/jd_bookshop.js
+口袋书店 = type=cron,cronexp="1 8,12,18 * * *",wake-system=1,timeout=3600,script-path=https://jdsharedresourcescdn.azureedge.net/jdresource/jd_bookshop.js
 
 ============小火箭=========
-口袋书店 = type=cron,script-path=https://gitee.com/lxk0301/jd_scripts/raw/master/jd_bookshop.js, cronexpr="1 8,12,18* * *", timeout=3600, enable=true
+口袋书店 = type=cron,script-path=https://jdsharedresourcescdn.azureedge.net/jdresource/jd_bookshop.js, cronexpr="1 8,12,18* * *", timeout=3600, enable=true
  */
 const $ = new Env('口袋书店');
 const notify = $.isNode() ? require('./sendNotify') : '';
@@ -281,13 +41,7 @@ if ($.isNode()) {
   if (process.env.JD_DEBUG && process.env.JD_DEBUG === 'false') console.log = () => {
   };
 } else {
-  let cookiesData = $.getdata('CookiesJD') || "[]";
-  cookiesData = jsonParse(cookiesData);
-  cookiesArr = cookiesData.map(item => item.cookie);
-  cookiesArr.reverse();
-  cookiesArr.push(...[$.getdata('CookieJD2'), $.getdata('CookieJD')]);
-  cookiesArr.reverse();
-  cookiesArr = cookiesArr.filter(item => item !== "" && item !== null && item !== undefined);
+  cookiesArr = [$.getdata('CookieJD'), $.getdata('CookieJD2'), ...jsonParse($.getdata('CookiesJD') || "[]").map(item => item.cookie)].filter(item => !!item);
 }
 
 !(async () => {
@@ -529,7 +283,8 @@ function getActContent(info = false, shareUuid = '') {
                 return
               }
               $.actorUuid = $.userInfo.actorUuid
-              if(!info) console.log(`您的好友助力码为${$.actorUuid}`)
+              // if(!info) console.log(`您的好友助力码为${$.actorUuid}`)
+              if(!info) console.log(`\n【京东账号${$.index}（${$.nickName || $.UserName}）的${$.name}好友互助码】${$.actorUuid}\n`);
               $.gold = $.userInfo.bookStore.hasStoreGold
               if (!info) {
                 const tasks = data.data.settingVo
@@ -879,7 +634,11 @@ function TotalBean() {
               $.isLogin = false; //cookie过期
               return
             }
-            $.nickName = data['base'].nickname;
+            if (data['retcode'] === 0) {
+              $.nickName = (data['base'] && data['base'].nickname) || $.UserName;
+            } else {
+              $.nickName = $.UserName
+            }
           } else {
             console.log(`京东服务器返回空数据`)
           }
